@@ -1,4 +1,4 @@
-© license copyright
+
 
 
 Titanium Network is a completely secure website. You may not edit or copy as another copy
